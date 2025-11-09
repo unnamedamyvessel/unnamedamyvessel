@@ -8,6 +8,6 @@ i'm a really big fan of yma lord x & no more innocence , i yume w them too
 
 read my rentry when it's finished maybe
 
-look at my awesome teir list
+look at my awesome tier list
 
 ![](https://files.catbox.moe/88kk3c.png)
