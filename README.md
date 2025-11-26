@@ -1,4 +1,4 @@
-ames/rosy or unnamed amy vessel - 18 yo w a job
+ames/rosy or unnamed amy vessel - scourge fan w a job
 
 c+h always welcome. i'm offtab a lot and will dc.
 
